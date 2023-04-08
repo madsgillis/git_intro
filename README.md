@@ -1,1 +1,2 @@
 Madison Gillis
+gillisma@oregonstate.edu
